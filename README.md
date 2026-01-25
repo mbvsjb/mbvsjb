@@ -16,5 +16,6 @@
 ︶꒦꒷♡꒷꒦︶
   </p>
 
-<p align="center"> <img width="870" height="435" alt="Untitled2978_20260119180323" src="https://github.com/user-attachments/assets/9840d7f6-b833-4131-b5a4-8cd83893c4eb" />
+<p align="center"> <img width="870" height="435" src="https://github.com/user-attachments/assets/1d2aad47-405b-49cb-ae4e-6404914534a2" />
+ " />
 </p>
