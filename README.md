@@ -39,8 +39,7 @@
 
 
 <p align="right">
-<img width="601" height="539" alt="Untitled3040_20260219205831" src="https://github.com/user-attachments/assets/eb97a27c-9de9-4d80-ac59-885471b2c8c7" />
- />
+<img width="601" height="539" alt="Untitled3040_20260219210028" src="https://github.com/user-attachments/assets/b85b7df4-0b1b-4d51-b246-038d5f98409f" />
 </p>
 
 <p align="center">
