@@ -32,8 +32,8 @@
 
 
 <p align="center">
-  <a href=https://mvmoc.straw.page/>ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>  ▫️
-  <a href=https://mvmoc.atabook.org/>ᴀᴛᴀʙᴏᴏᴋ</a>
+  <a href=https://https://mbvsjb.straw.page/>ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>  ▫️
+  <a href=https://https://mbvsjb.atabook.org/>ᴀᴛᴀʙᴏᴏᴋ</a>
 </p>
 
 
